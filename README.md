@@ -12,7 +12,7 @@ Khoảnh khắc ấy, tôi như chết lặng. Mọi thứ xung quanh bỗng tr�
 
 Nếu bạn là người chơi đang bị cấm nhưng vẫn còn cơ hội để được gỡ ban — xin hãy trân trọng điều đó.
 
-**Bởi khi cơ hội ấy mất đi rồi, bạn sẽ nhận ra rằng chẳng có con đường nào quay lại nữa. Và đến lúc ấy, có tiếc nuối cũng đã quá muộn...**
+**Bởi khi cơ hội ấy mất đi rồi, bạn sẽ nhận ra rằng chẳng có con đường nào quay lại nữa. Và đến lúc ấy, có tiếc nuối cũng quá muộn...**
 
 bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ban vĩnh viễn rồi, và nó sẽ không thể appeal được nữa...
 
