@@ -21,3 +21,5 @@ bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ba
 > ngu ngốc thật chứ
 
 "Just live as usual, it's going to happen anyway."
+
+`tao tự nguyện biến khỏi cộng đồng đừng làm phiền tao nữa, quá đủ rồi`
