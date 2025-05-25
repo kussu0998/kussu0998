@@ -1,4 +1,7 @@
-# hi, tui là kussu :D
+<details>
+  <summary> Nhật ký về tui </summary>
+
+# Hi, tui là kussu :D
 
 [tài khoản osu! của tôi nếu bạn muốn biết](https://web.archive.org/web/20250416010712/https://osu.ppy.sh/users/34060626)
 
@@ -22,4 +25,4 @@ bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ba
 
 "Just live as usual, it's going to happen anyway."
 
-`tao tự nguyện biến khỏi cộng đồng đừng làm phiền tao nữa, quá đủ rồi`
+ <!--- `tao tự nguyện biến khỏi cộng đồng đừng làm phiền tao nữa, quá đủ rồi` --->
