@@ -2,17 +2,17 @@
 
 [tài khoản osu! của tôi nếu bạn muốn biết](https://web.archive.org/web/20250416010712/https://osu.ppy.sh/users/34060626)
 
-Tôi vẫn nhớ quãng thời gian khi mình mới bắt đầu chơi osu! — một niềm vui giản dị, cái lúc mà luôn có những người bạn luôn đồng hành. Nhưng giờ tất cả đã tan biến. Chỉ còn lại tôi, lặng lẽ giữa dòng người, cô đơn nhìn theo những người đã được gỡ ban và không tái phạm. Tôi thật lòng mừng cho họ — ít nhất họ biết trân trọng cơ hội quý giá mà họ có. Còn tôi... thì đã đánh mất nó.
+Mình vẫn nhớ những ngày đầu chơi osu! — thật sự đó là khoảng thời gian vui vẻ, khi luôn có bạn bè đồng hành. Nhưng giờ thì mọi thứ đã khác rồi. Mình giờ đây đứng lặng giữa dòng người, nhìn những người được gỡ ban và không tái phạm, mình cảm thấy thật sự mừng cho họ. Ít nhất họ còn biết trân trọng cơ hội quý giá mà mình có, còn mình thì đã đánh mất nó.
 
-Tôi vẫn còn nhớ rất rõ cái khoảnh khắc tưởng chừng như mình sắp biến mất mãi mãi. Đó là sáng Chủ nhật ngày 27 tháng 4 năm 2025 — một buổi sáng đầy nắng, bình yên đến lạ. Khi tôi vừa sắp thi xong, cứ ngỡ mọi chuyện sẽ khép lại trong im lặng... thì đột nhiên, nó trở lại.
+Có một khoảnh khắc mà mình cảm thấy như sắp biến mất mãi mãi. Đó là vào một sáng Chủ nhật đầy nắng, ngày 27 tháng 4 năm 2025. Khi mình vừa xong bài thi, cứ nghĩ mọi chuyện sẽ kết thúc yên bình… thì bất ngờ mọi thứ lại trở lại.
 
-Khoảnh khắc ấy, tôi như chết lặng. Mọi thứ xung quanh bỗng trở nên xa lạ. Tôi nhìn thấy trước những gì sắp xảy ra — như thể đã được viết sẵn — nhưng lại chẳng thể làm gì để thay đổi. Một sự bất lực tĩnh lặng, trôi qua trong vô hồn.
+Lúc đó, mình như chết lặng. Mọi thứ xung quanh trở nên xa lạ, mình như nhìn thấy trước những gì sẽ xảy ra — nhưng chẳng thể thay đổi gì được. Một cảm giác bất lực, lặng lẽ trôi qua.
 
-> Tôi dịch các trang wiki liên quan đến luật không vì lợi ích gì cho bản thân, chỉ đơn giản vì tôi muốn giúp những người khác hiểu rõ hơn, tránh đi vào vết xe đổ mà tôi đã từng vướng phải.
+Mình đã dành thời gian dịch các trang wiki về luật chơi không phải vì lợi ích cá nhân, mà chỉ mong muốn giúp mọi người hiểu rõ hơn, tránh phải vấp ngã giống như mình từng trải qua.
 
-Nếu bạn là người chơi đang bị cấm nhưng vẫn còn cơ hội để được gỡ ban — xin hãy trân trọng điều đó.
+Nếu bạn đang bị cấm nhưng vẫn còn cơ hội gỡ ban, mình mong bạn sẽ thật sự trân trọng điều đó.
 
-**Bởi khi cơ hội ấy mất đi rồi, bạn sẽ nhận ra rằng chẳng có con đường nào quay lại nữa. Và đến lúc ấy, có tiếc nuối cũng quá muộn...**
+Bởi vì khi mất đi rồi, sẽ không còn con đường quay lại nữa. Và đến lúc đó, tiếc nuối cũng không còn ý nghĩa.
 
 bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ban vĩnh viễn rồi, và nó sẽ không thể appeal được nữa...
 
