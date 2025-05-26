@@ -15,14 +15,11 @@ Mình đã dành thời gian dịch các trang wiki về luật chơi không ph�
 
 Nếu bạn đang bị cấm nhưng vẫn còn cơ hội gỡ ban, mình mong bạn sẽ thật sự trân trọng điều đó.
 
-Bởi vì khi mất đi rồi, sẽ không còn con đường quay lại nữa. Và đến lúc đó, tiếc nuối cũng không còn ý nghĩa.
-
 bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ban vĩnh viễn rồi, và nó sẽ không thể appeal được nữa...
 
 > lúc đó không vì lời nói của người khác thì tôi đâu như thế này?
 
 > ngu ngốc thật chứ
 
-"Just live as usual, it's going to happen anyway."
+"Damn it, osu!support, give me my account back! You banned me and now you’re mocking me on my alt too?"
 
- <!--- `tao tự nguyện biến khỏi cộng đồng đừng làm phiền tao nữa, quá đủ rồi` --->
