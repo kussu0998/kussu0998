@@ -11,11 +11,7 @@ Có một khoảnh khắc mà mình cảm thấy như sắp biến mất mãi m�
 
 Lúc đó, mình như chết lặng. Mọi thứ xung quanh trở nên xa lạ, mình như nhìn thấy trước những gì sẽ xảy ra — nhưng chẳng thể thay đổi gì được. Một cảm giác bất lực, lặng lẽ trôi qua.
 
-Mình đã dành thời gian dịch các trang wiki về luật chơi không phải vì lợi ích cá nhân, mà chỉ mong muốn giúp mọi người hiểu rõ hơn, tránh phải vấp ngã giống như mình từng trải qua.
-
-Nếu bạn đang bị cấm nhưng vẫn còn cơ hội gỡ ban, mình mong bạn sẽ thật sự trân trọng điều đó.
-
-bạn sẽ không tìm thấy tài khoản đó trong osu! đâu vì nó bị ban vĩnh viễn rồi, và nó sẽ không thể appeal được nữa...
+bạn sẽ không tìm thấy tài khoản của tôi trong osu! đâu vì nó bị ban vĩnh viễn rồi, và nó sẽ không thể appeal được nữa...
 
 > lúc đó không vì lời nói của người khác thì tôi đâu như thế này?
 
