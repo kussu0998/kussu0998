@@ -17,5 +17,3 @@ bạn sẽ không tìm thấy tài khoản của tôi trong osu! đâu vì nó b
 
 > ngu ngốc thật chứ
 
-"Damn it, osu!support, give me my account back! You banned me and now you’re mocking me on my alt too?"
-
