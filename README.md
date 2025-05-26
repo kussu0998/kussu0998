@@ -1,5 +1,5 @@
 <details>
-  <summary> Nhật ký về tui </summary>
+  <summary> My reminiscence </summary>
 
 # Hi, tui là kussu :D
 
