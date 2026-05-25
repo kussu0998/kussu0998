@@ -1,6 +1,6 @@
 <details>
   <summary> reminiscence </summary>
 
-~~My account name is ..., and I’m an osu!mania player.~~
+Whether you come back or not, I honestly don’t care anymore. But why did you end up like this?
 
-I started playing the game on July 13, 2023 — it's been two years of being with the game now...
+> Yeah... I accept it.
