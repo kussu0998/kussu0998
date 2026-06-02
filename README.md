@@ -8,6 +8,6 @@ Whether you come back or not, I honestly don’t care anymore. But why did you e
 > Your blue eyes and your personality...
 
 <p align="center">
-  <img src="image.png" alt="để sau" width="500"><br>
+  <img src="image.png" alt="" width="500"><br>
   <em>Ảnh minh họa</em>
 </p>
