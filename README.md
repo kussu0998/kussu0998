@@ -14,3 +14,10 @@ Whether you come back or not, I honestly don’t care anymore. But why did you e
 <div align="center">
 Have a nice day! 
 </div>
+
+<details>
+  <summary> If you want to know </summary>
+
+<div align="center">
+  <img src="https://media.discordapp.net/attachments/1278226916280897569/1511590335116083210/wwwww.PNG?ex=6a2101b3&is=6a1fb033&hm=6974081c493bd4bcb0508492719de1b6a8e00d5b56ce7c1aee7d9be5ab68ea25&=&format=webp&quality=lossless" width="70%" alt="hehehehe">
+</div>
