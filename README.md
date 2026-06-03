@@ -12,5 +12,5 @@ Whether you come back or not, I honestly don’t care anymore. But why did you e
 </div>
 
 <div align="center">
-tôi méo hiểu 
+Have a nice day! 
 </div>
