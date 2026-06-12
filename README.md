@@ -21,7 +21,7 @@ Have a nice day!
   </summary>
 
 <div align="center">
-  <img src="https://media.discordapp.net/attachments/1278226916280897569/1511698804062158919/wwwww.PNG?ex=6a2166b8&is=6a201538&hm=e2982a539766bae4a33f698b86a6cd1ead964a94bba7f90b41efd60b84c0c2a2&=&format=webp&quality=lossless" width="70%" alt="hehehehe">
+  <img src="https://i.postimg.cc/VsZdhnf8/wwwww.png" width="70%" alt="hehehehe">
 </div>
 
 </details>
