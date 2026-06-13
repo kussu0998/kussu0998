@@ -8,7 +8,7 @@ Whether you come back or not, I honestly don’t care anymore. But why did you e
 > Your blue eyes and your personality...
 
 <div align="center">
-  <img src="https://pbs.twimg.com/media/HJ2Ow_aWQAAQYzA?format=jpg&name=large" width="73%" alt="you're so cute!!!">
+  <img src="https://pbs.twimg.com/media/HJ2Ow_aWQAAQYzA?format=jpg&name=large" width="73%" alt="hey, can we meet up?">
 </div>
 
 <div align="center">
@@ -21,7 +21,7 @@ Have a nice day!
   </summary>
 
 <div align="center">
-  <img src="https://i.postimg.cc/VsZdhnf8/wwwww.png" width="70%" alt="hehehehe">
+  <img src="https://i.postimg.cc/VsZdhnf8/wwwww.png" width="70%" alt="đoán xem">
 </div>
 
 </details>
