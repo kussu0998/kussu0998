@@ -1,11 +1,7 @@
 <details>
   <summary> reminiscence </summary>
 
-all the words i left unsaid that day stained the sidewalk drop by drop with gray 
-
-rain or shine, i'm by your side, so...
-
-[why won't you look my way?](https://www.youtube.com/watch?v=M7VSEZOQIlg&list=RDM7VSEZOQIlg&index=1)
+your beauty made me close my eyes, and your fragile life i left behind
 
 > ![Yeah... I accept it.](https://i.pinimg.com/736x/c6/5b/e9/c65be95c075b8320206dede275efb86e.jpg)
 
