@@ -5,7 +5,7 @@ your beauty made me close my eyes, and your fragile life i left behind
 
 > ![Yeah... I accept it.](https://i.pinimg.com/736x/c6/5b/e9/c65be95c075b8320206dede275efb86e.jpg)
 
-> Your blue eyes and your personality...
+> everything will be okay
 
 <div align="center">
   <img src="https://pbs.twimg.com/media/HJ2Ow_aWQAAQYzA?format=jpg&name=large" width="73%" alt="hey, can we meet up?">
